@@ -7,3 +7,6 @@ i go by he/they, and i have a boyfriend!
 
 
 i hope that we could all become some sort of companions, and i could do stuff for you all! (for some money ofc)
+
+my discord is: 
+730293105957273641
